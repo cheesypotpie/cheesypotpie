@@ -5,7 +5,7 @@
 
 <img src="https://file.garden/avKiKSSHDg--B6dy/kyman1" width="300" height="150">
 
-###### Robert / Corpse ㅤ He / Him ㅤ Bisexual
+###### Robert / Corpse ㅤ He / Him ㅤ Bisexual ㅤ System
 ###### Happily devoted to [@jerseyjew](https://github.com/jerseyjew) since 2022 <3
 
 <img
